@@ -1,1 +1,1 @@
-![](https://tenor.com/view/raiden-shogun-genshin-impact-gif-23667613)
+![](https://c.tenor.com/0R9r41V3VcwAAAAC/raiden-shogun.gif)
