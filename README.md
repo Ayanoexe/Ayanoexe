@@ -1,4 +1,4 @@
 <div align="center">
-![](https://chttps://giphy.com/gifs/ClvmvXv4WJ07u30A0G)
+![](https://media.giphy.com/media/ClvmvXv4WJ07u30A0G/giphy.gif)
 
 #**ETERNAL**
