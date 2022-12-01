@@ -8,7 +8,7 @@
 <br/>
  
 ## _🎗Contact Us On_
-## [![Naruto](https://img.shields.io/badge/WhatsApp-25D366?style=for-the-badge&logo=whatsapp&logoColor=white)](https://wa.me/15067038898?text=Hi%20Im%20From%20Github%20) _*Naruto*_
+## [![Ayano](https://img.shields.io/badge/WhatsApp-25D366?style=for-the-badge&logo=whatsapp&logoColor=white)](https://wa.me/15067038898?text=Hi%20Im%20From%20Github%20) _*Naruto*_
 
 
 
